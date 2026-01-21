@@ -1,3 +1,3 @@
 # Hi there 👾
 
-I am a software engineer passionate about creating clean, efficient, and scalable solutions. With strong problem-solving skills and a collaborative mindset, I focus on continuous learning and applying best practices to deliver high-quality software. I enjoy working on challenging projects that drive innovation and improve user experience.
+Results-oriented Software Engineer with a solid technical background and a collaborative mindset. Proven ability to work effectively within cross-functional teams, ensuring project milestones are met with precision. Highly motivated by innovation and continuous learning, I bring a strong work ethic and the agility to master new tools and frameworks in fast-paced environments.
