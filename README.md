@@ -1,3 +1,2 @@
 # Hi there 👾
-
-Severed
+Software Engineer focused on building effective and practical solutions through continuous learning, problem-solving, and adaptability. I approach new challenges with a strong willingness to learn quickly, take ownership, and turn ideas into reliable results. I value collaboration, clear communication, and leadership, while continuously looking for ways to improve both my work and the solutions I deliver.
